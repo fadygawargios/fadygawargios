@@ -6,8 +6,6 @@
 
 🌐 Check out my website for more: [fadygawargios.com](https://fadygawargios.com)
 
-Thanks for stopping by — feel free to explore!
-
 P.S: Here's a joke:
 
 **What do you call 8 hobbits?**  
